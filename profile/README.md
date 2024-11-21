@@ -3,7 +3,7 @@
 **Where Music Meets Romance**  
 Sprunki Kiss Edition is a delightful twist on the Sprunki universe, bringing love, drama, and a touch of chaos to the musical experience. Dive into a world of unexpected interactions, heartfelt moments, and hilariously romantic scenarios featuring your favorite Sprunki characters. This mod is perfect for fans who enjoy a playful mix of creativity and storytelling.
 
-[**Play Sprunki Kiss Edition**](https://sprunkimod.co/sprunki-kiss)
+## Play [Sprunki Kiss Edition](https://sprunkimod.co/sprunki-kiss)
 
 ![](https://sprunkiincredibox.app/images/sprunki-kiss-edition.webp)
 
